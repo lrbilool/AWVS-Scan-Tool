@@ -1,2 +1,2 @@
-# AlacanetBotnetV1
-AlacanetBotnetV1
+# lrbilool
+由于文件比较大，无法上传。需要的关注我的微信公众号：深网知识库 加我微信，我发给你
